@@ -10,5 +10,5 @@ c ₊ h 　　 ${\textsf{\color{#935680}rrentry byi}}$ 　　𝜗𓏲 　　　!
 
 　　⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
   
-<a href="https://bungarden.atabook.org">
+<a href="https://supremeking.atabook.org">
 <img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled813_20260429095751.png" width="170"> </a>
