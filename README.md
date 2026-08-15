@@ -2,8 +2,6 @@
 
 <img src="https://file.garden/aOvxYPBe6gwrFoVB/c9afcbbd21ec01d474e92f90d6247c4e.jpg">
 
-<img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled944_20260813195353.png" width="600">
-
 <table>
   <tr>
     <td valign="middle" width="70%">
@@ -20,4 +18,3 @@
        ૮ . ﻌ . ა 　　c+h 　　◞ 　　welc 　　♪ </b>
 </table>
 
-<img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled942_20260813191532.png" width="300">
