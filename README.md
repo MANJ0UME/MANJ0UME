@@ -15,6 +15,6 @@
 　　 single  not interested　!　　bpdtism
 　　 arospec poly　　 。 　　zhonglette's love <3
               ˓ ᭺  𓏼  　　14- dni 　　mentally unstable 　　.
-       ૮ . ﻌ . ა 　　c+h 　　◞ 　　welc 　　♪ </b>
+       ૮ . ﻌ . ა 　　c+h 　　◞ 　　welc 　　♪ 　　satanist </b>
 </table>
 
